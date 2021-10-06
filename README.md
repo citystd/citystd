@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @citystd
-- 👀 I’m interested in astronomy (I guess?!)
+- 👀 I’m interested in astronomy (I guess?!) and now study in astrophysics.
 - 🌱 I’m currently learning ~ data analysis & statistics ~
 - 💞️ I’m looking to collaborate on ... (NA now, heehee)
 - 📫 How to reach me ... (I will reach u~)
